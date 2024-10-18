@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/408000ce-f268-4f53-a7e4-7d1d9970c5ad)👋 Olá me chamo Kauan tenho 15 anos e atualmente so estudo e pratico alguns esportes como:
+👋 Olá me chamo Kauan tenho 15 anos e atualmente so estudo e pratico alguns esportes como:
 - futebol
 - atletismo 🏃
 - volei
